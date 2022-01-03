@@ -1,4 +1,4 @@
-### Hi everyone, My name is Rodrigo Lucio 😁
+### Hi everyone 😁
 
 ## I'm a Mechatronics engineering and Computer Science student! 
 - 🤖 I'm currently working with drones in college.
